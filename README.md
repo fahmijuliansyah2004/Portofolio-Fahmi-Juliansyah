@@ -5,7 +5,6 @@
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/4.png?raw=true)
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/6.png?raw=true)
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/7.png?raw=true)
-![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/7.png?raw=true)
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/8.png?raw=true)
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/9.png?raw=true)
 ![image alt](https://github.com/fahmijuliansyah2004/Portofolio-Fahmi-Juliansyah/blob/main/10.png?raw=true)
